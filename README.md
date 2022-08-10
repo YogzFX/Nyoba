@@ -1,4 +1,4 @@
-# AzzBot-MD
+# ZennSky-Botz
 
 Work Heroku
 No Enc 98%
@@ -7,8 +7,8 @@ On 24 Jam
 Anti Dilay
 
 # Sc No enc?
-Buy Chat me 081511480762
+Buy Chat me 089510598381
 
-# MBY•OFFICIAL
+# YogzKyz
 
 Jangan Lupa Subscribe ya 
